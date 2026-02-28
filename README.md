@@ -20,7 +20,7 @@
 
 ###
 
-<p align="left">Hai idk what to put here<br>18<br>smells fart<br>likes eating drug</p>
+<p align="left">Hai idk what to put here<br>18<br>i dont know how to interact with people, might be awkward<br>likes eating drug</p>
 
 ###
 
