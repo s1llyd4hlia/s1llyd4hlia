@@ -41,7 +41,7 @@
 ###
 
 <div align="center">
-  <img src="https://visitor-badge.laobi.icu/badge?page_id=s1llyd4hlia.s1llyd4hlia&left_color=pink&right_color=hotpink"  />
+  <img src="https://count.getloli.com/@:s1llyd4hlia?theme=rule34&padding=8&scale=2&align=top&pixelated=1&darkmode=0"  />
 </div>
 
 ###
